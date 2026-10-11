@@ -157,7 +157,7 @@ Analyse revenue, discounts and payment behaviour across channels.
 
 ## 📬 Contact
 
-**Your Name** · [LinkedIn](www.linkedin.com/in/sania-aftab-80254a288) · saniaaftab555@gmail.com
+**Sania Aftab** · [LinkedIn](www.linkedin.com/in/sania-aftab-80254a288) · saniaaftab555@gmail.com
 
 <div align="center">
 
